@@ -1,4 +1,4 @@
-#### FROM THE MINISTER'S DESK (SUNDAY 12 FEBRUARY 2024)
+#### FROM THE MINISTER'S DESK (SUNDAY 11 FEBRUARY 2024)
 
 The Five Finger Prayer is a simple, yet effective, way to remember different groups of people to pray for. It uses the fingers on one hand as a mnemonic for various prayer focuses. Here's a brief explanation of each finger:
 
@@ -13,3 +13,5 @@ The Five Finger Prayer is a simple, yet effective, way to remember different gro
 5. **Little Finger (Your Own Needs):** Finally, your little finger reminds you to pray for your own needs. By placing our own needs last, it reflects a posture of humility, acknowledging the importance of others' needs alongside our own.
 
 This method of prayer is designed to be easy to remember and to help ensure that we cover a wide range of prayer concerns in our daily lives. It's a helpful tool for those who want to enrich their prayer life and ensure they are considering a broad spectrum of needs in their prayers.
+
+KING'S GATE UNITED CHURCH
